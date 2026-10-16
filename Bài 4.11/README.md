@@ -1,0 +1,1 @@
+- Ảnh minh chứng: <img width="1917" height="987" alt="image" src="https://github.com/user-attachments/assets/5ae66a56-c0b4-44d2-8ddf-d6770017f85c" />
